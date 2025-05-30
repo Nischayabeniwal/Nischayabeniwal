@@ -1,4 +1,4 @@
-# Nischayabeniwal.github.io
+# Nischaya Beniwal
 # 💫 About Me:
 Cybersecurity & Cloud Enthusiast <br>Exploring, learning, leveling up 🎯📈 <br>Co-CEO @Cypher
 
